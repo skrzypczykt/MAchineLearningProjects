@@ -1,0 +1,1 @@
+Typowo zadanka z kerasa. Zadania nie sa mojego pomyslu.
